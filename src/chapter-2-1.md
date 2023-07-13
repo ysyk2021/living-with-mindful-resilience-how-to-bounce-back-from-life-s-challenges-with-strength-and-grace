@@ -1,4 +1,4 @@
-Chapter 2: The Meaning and Practice of Mindful Resilience: Defining Mindful Resilience and Its Benefits
+Defining Mindful Resilience and Its Benefits
 =======================================================================================================
 
 Mindful resilience is a practice that involves cultivating inner strength and adaptability in the face of life's challenges. In this chapter, we will define mindful resilience and explore its benefits.

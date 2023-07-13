@@ -1,4 +1,4 @@
-Chapter 8: Cultivating Self-Compassion: The Importance of Self-Compassion in Mindful Resilience
+The Importance of Self-Compassion in Mindful Resilience
 ===============================================================================================
 
 Self-compassion is a key component of mindful resilience. In this chapter, we will explore the importance of self-compassion in building resilience and strategies for cultivating greater self-compassion in our lives.

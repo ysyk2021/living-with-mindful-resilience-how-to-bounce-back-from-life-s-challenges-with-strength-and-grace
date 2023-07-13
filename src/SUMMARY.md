@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Understanding the Importance of Mindful Resilience in Adversity](chapter-1-1.md)
   - [How to Use This Guide](chapter-1-2.md)
 - [Chapter 2: The Meaning and Practice of Mindful Resilience](chapter-2.md)

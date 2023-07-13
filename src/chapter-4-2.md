@@ -1,4 +1,4 @@
-Chapter 4: Navigating Change and Uncertainty: The Importance of Flexibility in Mindful Resilience
+The Importance of Flexibility in Mindful Resilience
 =================================================================================================
 
 Change and uncertainty are inevitable in life, and they can present significant challenges to our resilience. In this chapter, we will explore the importance of flexibility in cultivating mindful resilience during times of change and uncertainty.

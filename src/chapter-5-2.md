@@ -1,4 +1,4 @@
-Chapter 5: Coping with Stress and Anxiety: Techniques for Managing Stress and Anxiety
+Techniques for Managing Stress and Anxiety
 =====================================================================================
 
 Stress and anxiety are common experiences in life, and they can have a negative impact on our mental and physical health if left unchecked. In this chapter, we will explore techniques for managing stress and anxiety with mindful resilience.

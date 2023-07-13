@@ -1,4 +1,4 @@
-Chapter 10: Embracing Change as an Opportunity for Growth: Strategies for Maximizing Opportunities for Growth During Change and Uncertainty
+Strategies for Maximizing Opportunities for Growth During Change and Uncertainty
 ===========================================================================================================================================
 
 Embracing change as an opportunity for growth is an essential component of building resilience. In this chapter, we will explore strategies for maximizing opportunities for growth during change and uncertainty.

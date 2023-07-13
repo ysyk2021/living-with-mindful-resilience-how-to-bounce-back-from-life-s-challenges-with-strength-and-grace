@@ -1,4 +1,4 @@
-Chapter 5: Coping with Stress and Anxiety: The Impact of Stress and Anxiety on Resilience
+The Impact of Stress and Anxiety on Resilience
 =========================================================================================
 
 Stress and anxiety can have a significant impact on our ability to cultivate mindful resilience and bounce back from life's challenges. In this chapter, we will explore the connection between stress, anxiety, and resilience, and how managing stress and anxiety can strengthen our resilience.

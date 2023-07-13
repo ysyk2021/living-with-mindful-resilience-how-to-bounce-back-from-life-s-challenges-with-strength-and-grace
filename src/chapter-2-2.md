@@ -1,4 +1,4 @@
-Chapter 2: The Meaning and Practice of Mindful Resilience: Techniques for Practicing Mindful Resilience
+Techniques for Practicing Mindful Resilience
 =======================================================================================================
 
 Mindful resilience is a practice that involves cultivating inner strength and adaptability in the face of life's challenges. In this chapter, we will explore techniques for practicing mindful resilience.

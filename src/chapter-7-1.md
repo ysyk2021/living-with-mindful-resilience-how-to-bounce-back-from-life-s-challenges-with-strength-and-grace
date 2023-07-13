@@ -1,4 +1,4 @@
-Chapter 7: Finding Meaning and Purpose: The Connection Between Meaning and Purpose in Resilience
+The Connection Between Meaning and Purpose in Resilience
 ================================================================================================
 
 Finding meaning and purpose in life is essential for building resilience and overcoming adversity. In this chapter, we will explore the connection between meaning and purpose in resilience and strategies for finding greater meaning and purpose in our lives.

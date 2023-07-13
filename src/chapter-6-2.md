@@ -1,4 +1,4 @@
-Chapter 6: Connecting with Others: Tips for Building and Maintaining Strong Relationships
+Tips for Building and Maintaining Strong Relationships
 =========================================================================================
 
 Connecting with others is an essential component of building resilience. In this chapter, we will explore tips for building and maintaining strong relationships to cultivate greater resilience in our lives.

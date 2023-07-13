@@ -1,4 +1,4 @@
-Chapter 3: Building Inner Strength: Strategies for Building Inner Strength and Mental Toughness
+Strategies for Building Inner Strength and Mental Toughness
 ===============================================================================================
 
 Building inner strength and mental toughness is crucial for cultivating mindful resilience. In this chapter, we will explore strategies for building inner strength and mental toughness.

@@ -1,4 +1,4 @@
-Chapter 8: Cultivating Self-Compassion: Techniques for Cultivating Self-Compassion
+Techniques for Cultivating Self-Compassion
 ==================================================================================
 
 Cultivating self-compassion is an essential component of building resilience. In this chapter, we will explore techniques for cultivating self-compassion to enhance our ability to bounce back from life's challenges with strength and grace.

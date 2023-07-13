@@ -1,4 +1,4 @@
-Chapter 6: Connecting with Others: The Importance of Social Support in Mindful Resilience
+The Importance of Social Support in Mindful Resilience
 =========================================================================================
 
 Connecting with others is an essential component of cultivating mindful resilience and bouncing back from life's challenges. In this chapter, we will explore the importance of social support in mindful resilience.

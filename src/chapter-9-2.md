@@ -1,4 +1,4 @@
-Chapter 9: Celebrating Victories and Learning from Mistakes: Techniques for Celebrating Successes and Turning Mistakes into Opportunities for Growth
+Techniques for Celebrating Successes and Turning Mistakes into Opportunities for Growth
 ====================================================================================================================================================
 
 Recognizing our achievements and learning from our mistakes is essential for building resilience. In this chapter, we will explore techniques for celebrating victories and learning from mistakes to cultivate greater resilience in our lives.

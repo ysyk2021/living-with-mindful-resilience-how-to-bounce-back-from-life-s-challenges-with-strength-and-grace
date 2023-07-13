@@ -1,4 +1,4 @@
-Chapter 3: Building Inner Strength: Tips for Developing a Resilient Mindset
+Tips for Developing a Resilient Mindset
 ===========================================================================
 
 Building inner strength is an essential component of cultivating mindful resilience. In this chapter, we will explore tips for developing a resilient mindset.
