@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 11: Conclusion
-======================
-
 Living with mindful resilience involves cultivating the skills and practices that allow us to bounce back from life's challenges with strength and grace. In this book, we have explored various strategies for building resilience, including mindfulness, self-compassion, recognizing achievements, and learning from mistakes.
 
 By incorporating these practices into our daily lives, we can develop greater resilience and adaptability in the face of adversity. We can learn to approach challenges with a growth mindset, cultivate greater self-awareness and self-reflection, and develop a greater sense of purpose and meaning in our lives.
