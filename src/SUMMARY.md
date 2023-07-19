@@ -30,7 +30,5 @@
 - [Chapter 10: Embracing Change as an Opportunity for Growth](chapter-10.md)
   - [The Connection Between Change and Opportunities for Growth](chapter-10-1.md)
   - [Strategies for Maximizing Opportunities for Growth During Change and Uncertainty](chapter-10-2.md)
-- [Chapter 11: Conclusion](chapter-11.md)
-  - [Final Thoughts on Living with Mindful Resilience and Bouncing Back from Life's Challenges with Strength and Grace](chapter-11-1.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
