@@ -1,5 +1,3 @@
-Chapter 9: Celebrating Victories and Learning from Mistakes
-===========================================================
 
 Recognizing our achievements and learning from our mistakes is essential for building resilience. In this chapter, we will explore the importance of celebrating victories and learning from mistakes, as well as techniques for incorporating these practices into our lives.
 

@@ -1,5 +1,3 @@
-Chapter 2: The Meaning and Practice of Mindful Resilience
-=========================================================
 
 Mindful resilience is a practice that involves cultivating inner strength and adaptability in the face of life's challenges. In this chapter, we will define mindful resilience, explore its benefits, and discuss techniques for practicing mindful resilience.
 

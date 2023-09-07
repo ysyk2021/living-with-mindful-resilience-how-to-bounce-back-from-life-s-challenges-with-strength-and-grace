@@ -1,5 +1,3 @@
-Chapter 6: Connecting with Others
-=================================
 
 Connecting with others is an essential component of cultivating mindful resilience and bouncing back from life's challenges. In this chapter, we will explore the importance of social support in mindful resilience, and tips for building and maintaining strong relationships.
 

@@ -1,5 +1,3 @@
-Chapter 4: Navigating Change and Uncertainty
-============================================
 
 Change and uncertainty are inevitable in life, and they can present significant challenges to our resilience. In this chapter, we will explore techniques for adapting to change and overcoming resistance, as well as the importance of flexibility in mindful resilience.
 

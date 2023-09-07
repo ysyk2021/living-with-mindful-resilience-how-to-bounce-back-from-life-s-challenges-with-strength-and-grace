@@ -1,5 +1,3 @@
-Understanding the Importance of Mindful Resilience in Adversity
-========================================================================================
 
 Life is full of challenges and obstacles that can test our strength and resilience. When faced with adversity, it can be easy to feel overwhelmed, stressed, and powerless. However, cultivating mindful resilience can help us bounce back from life's challenges with strength and grace.
 

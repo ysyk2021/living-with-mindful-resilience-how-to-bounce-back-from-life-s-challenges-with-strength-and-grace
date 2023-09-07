@@ -1,5 +1,3 @@
-Chapter 5: Coping with Stress and Anxiety
-=========================================
 
 Stress and anxiety are common experiences in life, and they can have a negative impact on our mental and physical health if left unchecked. In this chapter, we will explore the impact of stress and anxiety on resilience, as well as techniques for managing them.
 

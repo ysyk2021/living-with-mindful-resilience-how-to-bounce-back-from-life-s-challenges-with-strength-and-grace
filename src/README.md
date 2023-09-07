@@ -1,4 +1,4 @@
-# Introduction
+
 
 Mindful resilience is a transformative approach to navigating life's difficulties. It involves developing awareness, compassion, and an unwavering belief in our own inner strength. By embracing this concept, we can cultivate the skills needed to not only overcome adversity but also grow and flourish amidst it.
 
@@ -15,3 +15,7 @@ It is my hope that this book serves as a guide, offering insights and practical 
 Remember, resilience is not about avoiding difficulties but rather about facing them head-on, armed with the knowledge and skills necessary to navigate through them. Let us embark on this journey together, towards living a life of mindful resilience.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

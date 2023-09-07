@@ -1,4 +1,3 @@
-# Chapter 8: Cultivating Self-Compassion
 
 ## The Importance of Self-Compassion in Mindful Resilience
 

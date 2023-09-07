@@ -1,5 +1,3 @@
-Chapter 7: Finding Meaning and Purpose
-======================================
 
 Finding meaning and purpose in life is an essential component of building resilience. In this chapter, we will explore the connection between meaning and purpose in resilience, as well as techniques for finding meaning and purpose in life.
 

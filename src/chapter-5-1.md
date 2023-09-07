@@ -1,4 +1,3 @@
-# The Impact of Stress and Anxiety on Resilience
 
 In this chapter, we will explore the profound influence that stress and anxiety can have on our ability to develop and maintain resilience in the face of life's challenges. By understanding how these factors affect us, we can learn strategies to mitigate their impact and cultivate a sense of strength and grace.
 

@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Welcome to "Living with Mindful Resilience: How to Bounce Back from Life's Challenges with Strength and Grace." This guide is designed to help you cultivate greater inner strength and adaptability in the face of life's challenges through the practice of mindful resilience.
 
