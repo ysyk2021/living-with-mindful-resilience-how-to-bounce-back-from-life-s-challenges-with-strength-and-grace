@@ -1,5 +1,4 @@
-Chapter 7: Tips for Building and Maintaining Strong Relationships
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

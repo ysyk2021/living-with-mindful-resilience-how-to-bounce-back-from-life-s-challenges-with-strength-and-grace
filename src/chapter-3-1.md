@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Building Inner Strength and Mental Toughness
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore powerful strategies and techniques that can help individuals build inner strength and develop mental toughness. By incorporating these practices into their lives, readers can cultivate resilience, face challenges head-on, and bounce back from life's difficulties with strength and grace.
 

@@ -1,5 +1,4 @@
-Chapter 7: Tips for Developing a Resilient Mindset
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various tips and strategies that can help individuals develop a resilient mindset. By incorporating these practices into their lives, readers can cultivate a mindset that promotes adaptability, growth, and the ability to bounce back from life's challenges with strength and grace.
 

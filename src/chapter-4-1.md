@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Adapting to Change and Overcoming Resistance
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

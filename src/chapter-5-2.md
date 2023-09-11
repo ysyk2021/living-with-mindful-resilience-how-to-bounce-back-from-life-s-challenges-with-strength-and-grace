@@ -1,5 +1,4 @@
-Chapter 3: Techniques for Managing Stress and Anxiety
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore various techniques and strategies that can help individuals effectively manage stress and anxiety in their lives. By incorporating these practices into their daily routine, readers can develop a greater sense of well-being, resilience, and inner calm.
 

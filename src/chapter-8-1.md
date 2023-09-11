@@ -1,5 +1,4 @@
-Chapter 5: The Importance of Self-Compassion in Mindful Resilience
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound significance of self-compassion in cultivating mindful resilience. Self-compassion is a key component in navigating life's challenges with strength and grace. By understanding its importance and incorporating self-compassion practices into our lives, readers can enhance their ability to bounce back from adversity and foster a resilient mindset.
 
